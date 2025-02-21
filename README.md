@@ -1,2 +1,3 @@
-I love being me
-Being kind is what i am good attit
+i love being me
+Being kind is what i am good at it
+eating is a passion
